@@ -1,2 +1,2 @@
 # isaacadrine.skyscrip
- planned
+ God's choice
